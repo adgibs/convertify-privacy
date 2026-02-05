@@ -43,7 +43,7 @@ If this privacy policy changes, the updated version will be posted here with a n
 If you have questions about this privacy policy, please contact:
 
 **Andrew G**
-Email: [your-email@example.com]
+Email: [convertify.conversion.app@gmail.com]
 
 ---
 
